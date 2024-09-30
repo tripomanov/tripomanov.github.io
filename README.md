@@ -1,3 +1,1 @@
-# Everything here is created by sero
-
-.sero. — discord for offers
+![](https://view-counter.tobyhagan.com/?user={REBOULT}/{reboult.github.io})
