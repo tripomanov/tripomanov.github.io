@@ -1,3 +1,3 @@
-BY SERO
+by itzsae
 
-.sero. - DISCORD
+sss.ae — discord | @quasarexplosion — telegram
